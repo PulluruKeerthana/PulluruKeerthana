@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **keerthanapulluru16@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NHVzfVz5iyrQZDaM2A4hpyJWQolwkOMv/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1PpFtQy52GlS9e0iwfHlWkPk9rv3Yk3pl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
